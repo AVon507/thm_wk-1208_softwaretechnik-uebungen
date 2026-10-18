@@ -1,4 +1,4 @@
-# Steckbrief <AVon507>
+# Steckbrief <avon507>
 
 ## Studiengang und Semester
 
